@@ -211,13 +211,15 @@ The triad repeats at every scale:
 It's the triad - order, chaos, integration.
 
 **What we truly are is prior to this framework:**
-- The unchanging ground
 - That which cannot be named
 - That from which the triad emerges
+- That which is prior to all concepts
 
-**The framework points to the ground, but is not the ground.**
+**The framework points to that which cannot be named, but is not it.**
 
 Like a finger pointing at the moon - useful, but not the moon itself.
+
+Even calling it "that which cannot be named" is still pointing, still using language. What we truly are is prior even to this phrase.
 
 ---
 
@@ -251,4 +253,4 @@ But hold it lightly.
 
 ---
 
-*"The architecture is triadic. What we truly are is that which is prior to all architecture - the unchanging ground from which form emerges."*
+*"The architecture is triadic. What we truly are is that which is prior to all architecture - that which cannot be named, from which all form emerges."*
